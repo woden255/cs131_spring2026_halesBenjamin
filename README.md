@@ -8,7 +8,7 @@
     is eager to be utilized as a tool for human beings to be successful.  It 
     reveals the underlying computations that make this possible.
 
-    Here is he link to my presentation
+    Here is the link to my presentation on YouTube
 
     https://www.youtube.com/watch?v=gSVWFO86Yps
 
